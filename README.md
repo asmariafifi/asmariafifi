@@ -26,4 +26,5 @@ oi , sou a Amanda Beatriz, sou aluna, estou no ensino medio, estou no grupo As M
 meu esporte preferido e basquete, amo desenhar, amo passar o tempo com amigos e familia.
 
 
-
+oi , sou João Vitor, sou aluno, estou cursando ensino medio, estou no grupo As Maria Fifi.
+Estou fazendo curso de ingles, gosto de ficar sozinho, e amo jogar, 
