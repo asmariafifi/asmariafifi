@@ -18,6 +18,7 @@ gosto de passar o tempo com o meu namorado, fazer carinho na minha gata.
 
 
 oi , sou a clara eloisy,sou aluna, estou cursando o ensino medio, estou no grupo As Maria Fifi.
+Eu adoro passar  o tempo com a minha familia , e me divertir com amigos em minhas horas livres.
 
 
 
